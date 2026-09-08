@@ -76,6 +76,7 @@ We are currently on planning stages after establishment.
 
 <div align="center">
 
-*Interested in joining or collaborating? Reach out to any core member or our advisor.*
+*Interested in joining or collaborating? Reach out to us by contacting:*
+mailto:societyingenium@gmail.com
 
 </div>
